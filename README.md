@@ -5,7 +5,12 @@
 <br>
   
 ![80e107239a1b6d80255b02a8df786cff](https://github.com/user-attachments/assets/d33e6ed3-123a-4b89-b404-b9d1e80f48d9)
-  
+
+<br>
+
+[Meme Lula - é pq eu to meio gripadinha aueheuahaua (IA VOZ).mp3](https://github.com/user-attachments/files/22336338/Meme.Lula.-.e.pq.eu.to.meio.gripadinha.aueheuahaua.IA.VOZ.mp3)
+
+
 </div>
 
 
