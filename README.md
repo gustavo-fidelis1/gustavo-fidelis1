@@ -1,4 +1,13 @@
-## Hi there 👋
+## Hi 👋, Im Gay 🏳️‍🌈🏳️‍⚧️
+
+<div align='center'>
+
+<br>
+  
+![80e107239a1b6d80255b02a8df786cff](https://github.com/user-attachments/assets/d33e6ed3-123a-4b89-b404-b9d1e80f48d9)
+  
+</div>
+
 
 <!--
 **gustavo-fidelis1/gustavo-fidelis1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
